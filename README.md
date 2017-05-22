@@ -1,0 +1,7 @@
+# Display-day
+Assignment1
+
+OLIETHO GODFREY JOSIAH 
+Reg. No: 16/U/10968
+Bsc. ELECTRICAL ENGINEERING.
+Year 1
